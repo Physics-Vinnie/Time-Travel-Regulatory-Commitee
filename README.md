@@ -77,3 +77,6 @@ With all due Respect!
 I even figured out How to Measure and Locate the Center of our Universe.
 That is the 3rd Required Point, and the only Fixed/Stationary Point in our Universe.
 That one spot of Universe Beginning, is our 3rd Point for Navigation Outside of our Solar System.
+
+Sincerely,
+USMC Sgt. retired Manifold
